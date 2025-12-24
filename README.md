@@ -1,4 +1,4 @@
-#### Please visit the wiki for more info https://github.com/muhamed-hassan/reference-in-chemistry/wiki
+#### Please visit the [wiki](https://github.com/muhamed-hassan/reference-in-chemistry/wiki) for more info
 
 ***
 
