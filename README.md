@@ -8,5 +8,6 @@ It's nice 🤨 to have a look at [**periodic table**](https://en.wikipedia.org/w
 
 ***
 
-![asfaloth_by_gellihana_art_d4muel9-fullview](https://github.com/user-attachments/assets/583214d5-4f40-4e2d-aab8-3aab1780473d)
+![413806539-3596ecd8-6a5d-4f75-a665-98d65892e979](https://github.com/user-attachments/assets/507a2751-a12d-4d9d-87d9-ce8e278ab551)
+
 
